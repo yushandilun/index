@@ -81,3 +81,5 @@ nicole vaunt，vixen 260308
 jur067  jur633
 
 minamo
+
+sone-012
